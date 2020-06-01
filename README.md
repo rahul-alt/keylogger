@@ -1,5 +1,5 @@
            
-           HELLO Guy This Hack Is Only For Education Proposal Dlso PleaseDon't be do any illegal activity
+           HELLO Guy This Hack Is Only For Education Proposal  Please Don't be do any illegal activity
            
           # HACK BY# RAHUL
           This Zip Is For Hack Computer 
