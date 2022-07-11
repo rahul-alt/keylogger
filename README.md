@@ -1,11 +1,5 @@
-           
-           HELLO Guy This Hack Is Only For Education Proposal  Please Don't be do any illegal activity
-           
-          # HACK BY# RAHUL
-          This Zip Is For Hack Computer 
-          Through Keylogger 
-          How To
-          Command
+
+USER CMD 
           Cd Hatkey.Zip
           ls
           cd Hatkey.zip
